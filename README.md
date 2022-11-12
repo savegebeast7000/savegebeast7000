@@ -6,4 +6,4 @@ Ive been working on some projects such as Synapse Z which is Synapse X but hopef
 I am also working on PeelyFN which is a Fortnite private server that is hybrid and will hopefully allow you to play in-game
 
 # Contact Me
-&nbsp;<img src="https://raw.githubusercontent.com/savegebeast7000/savegebeast7000/main/PRywUXcqg0v5DD6s7C3LyQ.jpeg" width="22px"> savage_beast7000#3209
+&nbsp;<img src="https://raw.githubusercontent.com/savegebeast7000/savegebeast7000/main/PRywUXcqg0v5DD6s7C3LyQ.jpeg" width="20px"> savage_beast7000#3209
